@@ -1,1 +1,1 @@
-NPTEL Solution of  Quiz
+NPTEL Solutions of  Quiz
